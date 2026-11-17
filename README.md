@@ -1,1 +1,0 @@
-# Projecte04_tasca02
